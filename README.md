@@ -1,16 +1,15 @@
-### Hi there 👋
+## place card idea 2023
 
-<!--
-**placecardus/placecardus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+### Get your place card in 5 minutes with our easy-to-use place card maker
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![place card template](https://www.placecard.us/_next/image?url=%2Fimages%2Fposts%2Ffree-place-cards-template.png&w=1920&q=75)
+
+Perfect for weddings, parties, and dinners, our gorgeous templates will make your event stand out. Simply choose a template, add your guests' names, and download the finished place cards as a PDF file, ready to print at home. With our intuitive interface and quick generation, you can have your place cards ready in just minutes. Make your event even more special with our personalized and professional-looking place cards.
+
+### place card maker
+
+
+### place card template
+
+
