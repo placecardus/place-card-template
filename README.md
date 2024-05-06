@@ -1,15 +1,17 @@
 ## place card idea 2023
 
 
-### Get your place card in 5 minutes with our easy-to-use place card maker
+### A Free and Easy Printable Place Cards Templates and Maker for wedding, party, dinner
 
-![place card template](https://www.placecard.us/_next/image?url=%2Fimages%2Fposts%2Ffree-place-cards-template.png&w=1920&q=75)
+![place cards templates](https://placecard.us/images/best-free-place-card-template-for-weddings.jpg)
+
 
 Perfect for weddings, parties, and dinners, our gorgeous templates will make your event stand out. Simply choose a template, add your guests' names, and download the finished place cards as a PDF file, ready to print at home. With our intuitive interface and quick generation, you can have your place cards ready in just minutes. Make your event even more special with our personalized and professional-looking place cards.
 
-### place card maker
+### table name card templates
 
+A Free and Easy Printable Place Cards Templates and Maker for wedding, party, dinner
 
-### place card template
+### place cards templates
 
 
