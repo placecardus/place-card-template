@@ -11,11 +11,12 @@ Perfect for weddings, parties, and dinners, our gorgeous templates will make you
 10+ free place card templates 6 per sheet
 =========================================
 
-By Placecard.us | Update: 28 Apr 2024
+By [Placecard.us](https://placecard.us) | Update: 28 Apr 2024
 
 *   [▣ Place card template](https://placecard.us/categories/place-card-template)
 *   [▣ Name cards for wedding](/categories/name-cards-for-wedding)
 *   [▣ Custom place cards](/categories/custom-place-cards)
+*   [Place Card Template Rss](https://medium.com/feed/@needpp.com/)
 
 ![](https://placecard.us/_next/image?url=%2Fimages%2Fdownload%2Ffree-printable-place-card-templates-6-per-sheet.jpg&w=2048&q=75)
 
